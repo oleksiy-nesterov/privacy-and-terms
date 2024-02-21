@@ -22,6 +22,6 @@ I may update our Privacy Policy from time to time. Thus, you are advised to revi
 
 Contact Information
 
-If you have any questions or suggestions about my Privacy Policy, do not hesitate to contact me at oleksiy.nesterov+Crubik2D@gmail.com.
+If you have any questions or suggestions about my Privacy Policy, do not hesitate to contact me at oleksiy.nesterov+TheAvatarGenerator@gmail.com.
 
 This policy is effective as of 20.02.2024
